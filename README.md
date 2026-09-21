@@ -1,1 +1,2 @@
-BRB Fixing this front page to be elegant lol
+I WILL FIX THIS PAGE FOR REAL 
+- 2026
